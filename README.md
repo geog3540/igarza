@@ -1,1 +1,1 @@
-Isabella's Geovisualization Portfolio for GEOG 3540
+Isabella Garza's Geovisualization Portfolio for GEOG 3540
